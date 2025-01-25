@@ -36,9 +36,10 @@ This is my favorite theater project so far--it tells everything about me.
 | UCSB Fall 2023 One Acts | Stage Manager| UCSB Theater and Dance| Irwin Appel | November 2023 |
 
 ## Festivals
-Amplify Go: Plays In a Day :actor and director for many times
+Amplify Go: Plays In a Day: actor and director many times.
 
-Between the Couch Cushions (Sketch comedy collection): actor and costume designer
+Between the Couch Cushions (Sketch comedy collection): actor and costume designer.
+
 Improvability workshops: workshopping improviser
 
 ## Special Skills
